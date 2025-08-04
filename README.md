@@ -60,8 +60,8 @@
 
 ### 📬 Get in Touch
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/eliyahu-kriel/)
-- 💌 eliyahu.k@phytech.com
+- 💼 [LinkedIn](https://www.linkedin.com/in/elikri/)
+- 💌 elik56a@gmail.com
 - 🌐 [Portfolio (Coming Soon)]()
 
 ---
